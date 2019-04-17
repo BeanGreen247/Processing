@@ -8,5 +8,4 @@ FB:https://www.facebook.com/tomas.mozdren.92
 
 DISCORD: BeanGreen247#4151
 
-DISCORD SERVER: https://discordapp.com/invite/nCeNt7V
 
